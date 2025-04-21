@@ -51,8 +51,8 @@ We welcome students passionate about technology and innovation to join us. Wheth
 ## 📬 Contact Us
 
 - **Email**: technovision.ed.in
-- **Instagram**: 
-- **LinkedIn**: 
+- **Instagram**: https://www.instagram.com/technovision.su/reels/
+- **LinkedIn**: https://www.linkedin.com/company/su-techno-vision/
 
 
 
